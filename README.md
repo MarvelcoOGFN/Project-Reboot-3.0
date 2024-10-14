@@ -1,8 +1,5 @@
-![image](https://github.com/user-attachments/assets/5704e635-31d9-417a-856f-91728f2be7f2)
-
-# The reboot discord and my discord account has been terminated
+# The reboot discord and Milxnor's account has been terminated
 # What does this mean for the future of reboot? This means V4 is definitely not coming.
-# Thanks for all the support over the past years.
 
 ![Banner](https://i.imgur.com/p0P4tcI.png)
 
